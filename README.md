@@ -1,5 +1,3 @@
-# Here you go — written like a real Year 8:
-
 # Islamic Studies HW — Ebaad
 # Topic 1: Character of the Prophet ﷺ
 # Qur'an (68:4): "You are of a great moral character."
